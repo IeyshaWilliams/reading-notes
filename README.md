@@ -6,4 +6,4 @@ A place to store all of my notes for Codex Academy
 ### third level heading
 [Github](https://github.com)
 
-![heart](https://www.istockphoto.com/essential/vector/heart-symbol-of-love-and-valentines-day-flat-red-icon-isolated-on-white-background-gm1128400054-297744131)
+![two line style hearts together linked love symbol.](https://www.dreamstime.com/two-line-style-hearts-together-linked-love-symbol-two-line-style-hearts-together-linked-symbol-love-wedding-theme-sign-linear-image112375293)
